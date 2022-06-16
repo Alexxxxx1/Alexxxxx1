@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Alexxxxx1
+- 👀 I’m interested in coding games
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me insta iulian_25
